@@ -1,0 +1,2 @@
+# Cory-Booker-2020-Official-T-shirts
+Cory Booker 2020 Official T-shirt, t-shirt includes a vintage political identification supporting Booker in 2020, Booker will acquire it 2020  Do you need a fair president in 2020? Cory Booker is will to face the Republicans, demonstrate your Cory Booker bolster shirt, presidential decision 2020 vote Cory Booker  Get your Cory Booker 2020 Official T-shirts Here>> https://medium.com/@ak0204554/cory-booker-2020-official-t-shirts-6d91d071c3e1
